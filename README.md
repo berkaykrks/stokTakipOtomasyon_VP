@@ -1,0 +1,1 @@
+# stokTakipOtomasyon_VP
